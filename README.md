@@ -22,4 +22,16 @@ Kindly use this format:
 9. And finally make a new PR.:partying_face:
 ```
 
+
+
 ### Happy hacking!:sunglasses:
+
+Memes:
+Bruh Bruh Bruh
+I am on seafood diet,I see the food I eat!!
+the moment you find the perfect avocado at the supermarket.ooooohhh
+The worst joke = Lol ??
+Links:
+<a href="https://github.com/techyAdi1/" target="_blank">techyAdi1</a>
+https://www.youtube.com/watch?v=zwMlv0EaDxc
+https://www.youtube.com/channel/UCCC3F1GTtyjXPL7bdCHqHXg
